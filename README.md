@@ -1,1 +1,1 @@
-strong
+lucky
